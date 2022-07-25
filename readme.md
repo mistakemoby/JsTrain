@@ -10,4 +10,3 @@
 I'm 24 y.o. and I want to change my profession
 ### Skills:
 Microelectronics and automotive electrics (but this is not accurate)
-pizda ebamnauysadp;/dfggggggggggggggggggv                       vvbfvfdsc cf v f
